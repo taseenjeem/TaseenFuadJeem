@@ -16,7 +16,7 @@
 
 - 📫 How to reach me **mdtaseenfuad@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1okkZ6-MQm-iFZrL62l_GhrZEqxR-vez4/view?usp=sharing](https://drive.google.com/file/d/1okkZ6-MQm-iFZrL62l_GhrZEqxR-vez4/view?usp=sharing)
+- 📄 Know about my experiences [My Resume](https://drive.google.com/file/d/1okkZ6-MQm-iFZrL62l_GhrZEqxR-vez4/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
