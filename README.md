@@ -10,7 +10,7 @@
 
 - 🌱 I’m currently learning **Redux**
 
-- 👨‍💻 All of my projects are available at [My Website]https://taseen-jeem.web.app/)
+- 👨‍💻 All of my projects are available at [My Website](https://taseen-jeem.web.app/)
 
 - 💬 Ask me about **MERN**
 
